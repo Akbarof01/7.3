@@ -1,1 +1,1 @@
-#Akbarov Abdulaziz
+Akbarov Abdulaziz
